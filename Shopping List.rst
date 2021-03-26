@@ -10,9 +10,9 @@
    • `250 mL PMMA <https://www.bodum.com/au/en/11848-10-12-pavina-outdoor>`_
    • `350 mL PMMA <https://www.bodum.com/au/en/11849-10-12-pavina-outdoor>`_
 
-•  70$  DVD wallet (250+ discs), replaces 1m³ of xbox DVD cases
+•  70$  `DVD wallet (250+ discs) <https://www.caselogic.com/en-us/products/other-cases/264-capacity-cd-wallet-_-cdw_-_264>`_, replaces 1m³ of xbox DVD cases
 • 100$  cheap outdoor folding table & chairs
-• 650$  sofa, cloth, 3-seat straight, high back, low armrest (300$ to 1000$)
+• 650$  `sofa <https://www.ikea.com/au/en/p/X-s19193678/>`_, `cloth, 3-seat straight <https://www.ikea.com/au/en/cat/X-10670/>`_, high back, low armrest (300$ to 1000$)
 •  60$  sofa cushions
 •  30$  pillows (for spare bed)
 
